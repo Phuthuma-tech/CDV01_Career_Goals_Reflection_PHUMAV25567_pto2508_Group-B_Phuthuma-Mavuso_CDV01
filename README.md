@@ -16,9 +16,9 @@ By completing this reflection, you will gain a clearer understanding of your car
 
 ### Personal Information
 
-- **Name:**
-- **Date:**
-- **Current Role/Position:**
+- **Phuthuma Mavuso:**
+- **19 October 2026:**
+- **Intern:**
 - **Field of Interest:**
 
 ### Part 1: Self-Assessment Reflection
